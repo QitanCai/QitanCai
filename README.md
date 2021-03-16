@@ -2,3 +2,4 @@
 - 👀 I’m interested in web;
 - 🌱 I’m currently learning how can be hired~
 - 📫 How to reach me QitanCai@qq.com
+- 可以用中文吗
