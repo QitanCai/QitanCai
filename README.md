@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @QitanCai
 - 👀 I’m interested in web;
-- 📫 How to reach me QitanCai@qq.com
+- 📫 How to reach me QitanCai@gmail.com
 - 🌱 种下一棵树最好的时机是10年前，其次是现在。
